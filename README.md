@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @SiddBourbaki
+- 👋 Hi, I’m @Idk RanodomTry
 
 Bbye
