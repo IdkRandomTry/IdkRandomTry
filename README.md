@@ -1,3 +1,1 @@
-- 👋 Hi, I’m @Idk RanodomTry
-
-Bbye
+Github is Ez
